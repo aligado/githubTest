@@ -14,3 +14,4 @@ http://rapidgator.net/account/registration/ref/2450325
 
 password: macpeers
 if you can not unzip it,Use the keka.app please!
+123
